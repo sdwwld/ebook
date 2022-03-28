@@ -21,3 +21,24 @@
 链接：https://pan.baidu.com/s/1xFVlCROGIDVD7bv4PmeM5A 
 提取码：6666
 
+《算法导论》
+链接：https://pan.baidu.com/s/1UnCMqZSMHaUC3g9sxf0GyQ 
+提取码：6666
+
+《算法》
+链接：https://pan.baidu.com/s/1QQWW3M6JE_HMP_xPzq7nag 
+提取码：6666
+
+《算法的乐趣》
+链接：https://pan.baidu.com/s/1UTTUyQROlroQ5Yw_7oj_Hw 
+提取码：6666
+
+
+
+
+
+
+
+
+
+
